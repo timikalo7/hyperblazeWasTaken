@@ -4,4 +4,4 @@ Beyond web development, I bring hands-on experience in IT support, proficient in
 
 Additionally, I possess strong data analysis skills, leveraging tools like Excel, PostgreSQL, MySQL, and Python libraries (Pandas, Matplotlib, NumPy) to derive insights and drive decision-making. My diverse skill set and practical experience equip me to deliver comprehensive technical solutions that meet both business and individual needs.
 
-feel free to hit me up on instagram (timikalo7) or email timikal007@yahoo.com with any project opportunites 
+feel free to hit me up on Linkedin https://www.linkedin.com/in/timi-kalejaiye-03295b270/ with any project opportunites 
